@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rahulvvsv
 - 👀 I’m interested in Computers && Film making
-- 📫 How to reach me vuppalarahul2@gmail.com
+- 📫 How to reach me vuppalarahul12@gmail.com
 
 <!---
 Rahulvvsv/Rahulvvsv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
