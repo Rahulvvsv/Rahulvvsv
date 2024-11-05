@@ -1,7 +1,10 @@
 Hi 👋 My name is Rahul Vuppala
-==============================Programmer | Freelancer-----------------------\-
+==============================
+Programmer | Freelancer
+-----------------------\-
  👀 I’m interested in Computers && Film making 
-- Frelancer @freelancer.com --https://www.freelancer.com/u/VuppalaRahul* 
+Frelancer @freelancer.com --https://www.freelancer.com/u/VuppalaRahul
+
 🌍  I'm based in Hyderabad* ✉️  
 You can contact me at [rahulwork120@gmail.com](mailto:rahulwork120@gmail.com)
 
