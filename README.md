@@ -11,7 +11,7 @@ Programmer | Freelancer
 Frelancer @freelancer.com --https://www.freelancer.com/u/VuppalaRahul
 
 
-🌍  I'm based in Hyderabad* ✉️  
+🌍  I'm based in Hyderabad
 
 You can contact me at [rahulwork120@gmail.com](mailto:rahulwork120@gmail.com)
 
