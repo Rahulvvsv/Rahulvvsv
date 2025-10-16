@@ -2,7 +2,7 @@ Hi 👋 My name is Rahul Vuppala
 
 ==============================
 
-Programmer | Freelancer
+Programmer
 
 -----------------------\-
 
