@@ -8,7 +8,7 @@ Programmer
 
  👀 I’m interested in Computers && Film making 
 
-🌍  I'm based in Hyderabad
+🌍  I'm based in Waukee, Iowa
 
 You can contact me at [rahulwork120@gmail.com](mailto:rahulwork120@gmail.com)
 
